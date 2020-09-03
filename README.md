@@ -1,0 +1,1 @@
+# isbn-algorithmic-trading-and-DMA-978-0956399205
